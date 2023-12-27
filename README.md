@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **gandhi.jarugu@gmail.com**
 
-- 📄 Know about my experiences [https://app.flexiple.com/resume/1695295240642x106382778279982000?t=1654597522570x739808933295423500](https://app.flexiple.com/resume/1695295240642x106382778279982000?t=1654597522570x739808933295423500)
+- 📄 Know about my experiences [Resume](https://app.flexiple.com/resume/1695295240642x106382778279982000?t=1654597522570x739808933295423500)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
